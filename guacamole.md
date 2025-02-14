@@ -6,3 +6,4 @@
 
 ## Instructions
 * Prepare Utensils
+* Purchase groceries
