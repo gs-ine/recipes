@@ -7,3 +7,4 @@
 ## Instructions
 * Prepare Utensils
 * Purchase groceries
+* Put one avacodo into the bowl
